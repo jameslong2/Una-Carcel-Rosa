@@ -2,7 +2,7 @@
 
 Mientras inconsciente estaba, me arrojaron al coliseo,
 desnudo, sin arma alguna, mas que mi propio cuerpo
-forjó con dolor ante las llamas surgidas del infierno.
+forjado con dolor entre las llamas surgidas del infierno.
 De repente se abrió una trampilla, y de ella una leona
 enfurecida salió, con ojos de ira.
 
